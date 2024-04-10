@@ -7,7 +7,7 @@
 - 📫 Cómo llegar a mí, puedes contactarme en muchos lugares: Mi perfil de LinkedIn Usuario de My Hacker News Mi usuario de YAHOO! Mi usuario de twitter @DISECADOS Y, por supuesto, mi correo electrónico es disecado@yahoo.es
 - - 😄 Pronombres: acepto sugerencias, problemas, solicitudes de funciones, ideas locas e incluso una buena conversación sobre mis proyectos. ¡Me encantan los comentarios!
 - ⚡ Dato curioso: acaba de fallecer mi padre familiar. Le deseo lo mejor allí dónde lo quieran acoger. ¡Enhorabuena amigo!. Descansa en paz-
-Si te gusta alguno de mis proyectos y te gustaría hacerme una donación ☕ usa mi página de paypal.me/DiegoMoraMaestre
+Si te gusta alguno de mis proyectos y te gustaría hacerme una donación ☕ usa mi [página de paypal.me/DiegoMoraMaestre](https://www.paypal.com/paypalme/DiegoMoraMaestre)
  (si no quieres pues no). GRACIAS A VOSOTROS SIGO CON MIS RISAS...
 <!---
 diegoggithub/diegoggithub es un ✨ repositorio especial ✨ porque mi 'LÉEME.md' (este archivo) aparece en MI perfil de GitHub.
